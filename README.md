@@ -59,3 +59,10 @@ Josh Park (12:30pm)
 Junghwan Park (12:30pm)   
 Krystal Xu (12:30pm)  
 
+#### Team 7: Library 140
+
+Siyu Liu (12:30pm)
+Yiduan Ma (12:30pm) 
+Chia-Lin Tsai (12:30pm) 
+Yihan Wang (12:30pm) 
+Di Zhu (12:30pm) 
